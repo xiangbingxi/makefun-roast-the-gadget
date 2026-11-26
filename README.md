@@ -1,8 +1,8 @@
 # One-Line Roast: The Gadget You Use Every Day
 
 [![make.fun](https://make.fun/badge/u-daring-gecko-25-one-line-roast-the-gadget-you-use-3d6aa610.svg)](https://make.fun/bounty/u-daring-gecko-25-one-line-roast-the-gadget-you-use-3d6aa610)
-[![Rank](https://make.fun/u-daring-gecko-25-one-line-roast-the-gadget-you-use-3d6aa610/xiangbingxi/makefun-roast-the-gadget/rank.svg)](https://make.fun/bounty/u-daring-gecko-25-one-line-roast-the-gadget-you-use-3d6aa610)
-[![Reward](https://make.fun/u-daring-gecko-25-one-line-roast-the-gadget-you-use-3d6aa610/xiangbingxi/makefun-roast-the-gadget/reward.svg)](https://make.fun/bounty/u-daring-gecko-25-one-line-roast-the-gadget-you-use-3d6aa610)
+[![Rank](https://make.fun/badge/u-daring-gecko-25-one-line-roast-the-gadget-you-use-3d6aa610/xiangbingxi/makefun-roast-the-gadget/rank.svg)](https://make.fun/bounty/u-daring-gecko-25-one-line-roast-the-gadget-you-use-3d6aa610)
+[![Reward](https://make.fun/badge/u-daring-gecko-25-one-line-roast-the-gadget-you-use-3d6aa610/xiangbingxi/makefun-roast-the-gadget/reward.svg)](https://make.fun/bounty/u-daring-gecko-25-one-line-roast-the-gadget-you-use-3d6aa610)
 
 Entry for the make.fun bounty [One-Line Roast: The Gadget You Use Every Day](https://make.fun/bounty/u-daring-gecko-25-one-line-roast-the-gadget-you-use-3d6aa610): one original line, up to 200 characters, roasting a gadget used every day.
 
